@@ -1,0 +1,5 @@
+- [[Terms#Camp Vernon|Camp Vernon]]
+	- Was under the control of [[Private Club PMC|Private Club PMC]], and [[Interrogation Jack Full Transcript#^0354cf|was subsequentially lost as per this statement]]
+- [[Jean Flanders|Jean Flanders]] / [[Cor3.gg/Codex/Dossiers/Aurana Strogova|Aurana Strogova]]
+	- Mentioned [[Jeans Diary Entries#^ceac4b|I told this nice stranger, '''Em''' she said I could call her]]
+- 
